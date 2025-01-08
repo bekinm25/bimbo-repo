@@ -1,1 +1,1 @@
-Die Bimbos dieser Repo sind Maik, Lukas und Mathis!
+Die Bimbos dieses Repos sind Maik, Lukas und Mathis!
